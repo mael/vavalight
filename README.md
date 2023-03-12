@@ -16,35 +16,38 @@ A partir de ahí, todo fue muy sencillo, localice la batería que alimenta el hu
 
 
 
-![](/IMG_1776.JPG)
+![](/assets/IMG_1776.JPG)
 
-![](/IMG_1777.JPG)
+![](/assets/IMG_1777.JPG)
 
-![](/IMG_1778.JPG)
+![](/assets/IMG_1778.JPG)
 
-![](/IMG_1779.JPG)
+![](/assets/IMG_1779.JPG)
 
-![](/IMG_1780.JPG)
+![](/assets/IMG_1780.JPG)
 
-![](/IMG_1781.JPG)
+![](/assets/IMG_1781.JPG)
 
-![](/IMG_1782.JPG)
+![](/assets/IMG_1782.JPG)
 
-![](/IMG_1784.JPG)
+![](/assets/IMG_1784.JPG)
 
-![](/IMG_1785.JPG)
+![](/assets/IMG_1785.JPG)
 
-![](/IMG_1786.JPG)
+![](/assets/IMG_1786.JPG)
 
-![](/IMG_1787.JPG)
+![](/assets/IMG_1787.JPG)
 
-![](/IMG_1788.JPG)
+![](/assets/IMG_1788.JPG)
 
-![](/IMG_1791.JPG)
+![](/assets/IMG_1791.JPG)
 
-![](/IMG_1792.JPG)
+![](/assets/IMG_1792.JPG)
 
-![](/IMG_1793.JPG)
+![](/assets/IMG_1793.JPG)
+
+
+**Repair and enjoy !!**
 
 
 
